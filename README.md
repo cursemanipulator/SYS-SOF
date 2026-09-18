@@ -3,7 +3,7 @@
 wip ok who cares check straw and sign ata nya kawaii desu
 
 <!--
-**SYS-SOF/SYS-SOF** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**CurseManipulator** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
