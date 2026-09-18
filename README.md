@@ -1,3 +1,4 @@
+![Uploading 4051f362d484bc609cca294d4f7b9a1c.gif…]()
 wip ok who cares check straw and sign ata nya kawaii desu
 
 <!--
