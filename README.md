@@ -1,3 +1,4 @@
+<img width="498" height="207" alt="4051f362d484bc609cca294d4f7b9a1c" src="https://github.com/user-attachments/assets/a153d333-d570-4188-90ea-f102531888b3" />
 
 wip ok who cares check straw and sign ata nya kawaii desu
 
